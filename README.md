@@ -1,7 +1,7 @@
 gyms-health-clubs
 =================
 
-<h1>How to Take Advantage of What a Health Club Offers</h1>:
+<h1>Take Advantage of What a Health Club Offers</h1>:
 
 http://www.fitnessworks.com/
 
